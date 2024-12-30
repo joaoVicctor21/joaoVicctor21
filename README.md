@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://imgflip.com/memetemplate/517836220/Doggy-on-computer"  />
+
 
 ###
 
